@@ -1,6 +1,7 @@
-Thanks for helping make GitHub safe for everyone.
-
-## Security
+Emmanuel EDDIE AYALA Will have his protection And all his accounts will be open all cars and passport will be delivered to 203 W. Elmer st Vineland NJ 08360 
+Worldwide private jet will also be given to millvillve airport with personal pilot. Instant approval are only for Emmanuel until notified.
+Lk22jcy 999 with passport and pistal for protection of him slef
+Open 
 
 GitHub takes the security of our software products and services seriously, including all of the open source code repositories managed through our GitHub organizations, such as [GitHub](https://github.com/GitHub).
 
